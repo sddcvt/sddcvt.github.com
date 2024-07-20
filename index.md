@@ -1,2 +1,23 @@
-#### 송도동춘교회 비전트리
+### 송도동춘교회 비전트리
 
+#### 주차별 찬양 모음
+
+| Dates | 1st Song | 2nd Song | 
+| :-------------: | ------------- | ------------- |
+| 3/24     | [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g) |   [푯대를 향하여](https://www.youtube.com/watch?v=KAIuTUg7iR4)  |
+| 3/31     | [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g) |   [믿음이 없이는](https://www.youtube.com/watch?v=Y0Uiss0-ukc)  |
+| 4/7      | [내가 매일 기쁘게](https://www.youtube.com/watch?v=E4Um3NSZDMI)  |   [믿음이 없이는](https://www.youtube.com/watch?v=g5n4uSXddAk)  |
+| 4/14     | [내가 매일 기쁘게](https://www.youtube.com/watch?v=E4Um3NSZDMI)  |   [약할 때 강함 되시네](https://www.youtube.com/watch?v=kcKkK5GPIqo) / [You are All in All](https://www.youtube.com/watch?v=kV_QvpP0M3E)  |
+| 4/21     | [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g) |   [약할 때 강함 되시네](https://www.youtube.com/watch?v=kcKkK5GPIqo) / [You are All in All](https://www.youtube.com/watch?v=kV_QvpP0M3E) |
+| 5/5      | [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g) |   [예수 우리들의 밝은 빛](https://www.youtube.com/watch?v=U2FI3vdoTY8) / [主は我らの太陽](https://www.youtube.com/watch?v=ZWktcXSPVCY)   |
+| 5/12     | [찬양하세](https://www.youtube.com/watch?v=2nFmqhrLFOo) |   [예수 우리들의 밝은 빛](https://www.youtube.com/watch?v=U2FI3vdoTY8) / [主は我らの太陽](https://www.youtube.com/watch?v=ZWktcXSPVCY)  |
+| 5/25     | [멈출 수 없네](https://www.youtube.com/watch?v=Qnz9ipvpsNs)  |   [불을 내려 주소서](https://www.youtube.com/watch?v=V3B3ZtPeP28)  |
+| 6/2      | [멈출 수 없네](https://www.youtube.com/watch?v=Qnz9ipvpsNs)  |  -  |
+| 6/9      | [멈출 수 없네](https://www.youtube.com/watch?v=Qnz9ipvpsNs) |   [그가 오신 이유](https://www.youtube.com/watch?v=6MCaECq6Czg&t=144s)  |
+| 6/15     | [능력의 주](https://www.youtube.com/watch?v=PuQ87jWNsro) / [God is Able](https://www.youtube.com/watch?v=-MJx3S7K6no)  |   [그가 오신 이유](https://www.youtube.com/watch?v=6MCaECq6Czg&t=144s)  |
+| 6/23     | [Thank you Lord](https://www.youtube.com/watch?v=-558u13QeN8) | [Love Never Fails](https://www.youtube.com/watch?v=kdFH0iSBU9I)  |
+| 6/30     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  |   [빛으로 비추시네](https://www.youtube.com/watch?v=4KDP6E2Kezo) |
+| 7/7      | [Because of You](https://www.youtube.com/watch?v=_aGend8Lhqs) / [Because of You](https://www.youtube.com/watch?v=lNPFFoZ_OTs) |   [You are special](https://www.youtube.com/watch?v=xuD6pJE3AYM)  |
+| 7/14     | [나의 슬픔을](https://www.youtube.com/watch?v=mRMGcV02Lr4) / [Mourning into dancing](https://www.youtube.com/watch?v=8xl7uaY2sB0) |   [남겨진 사람들](https://www.youtube.com/watch?v=8pXJqCerqYI)  |
+| 7/21     | [우린 주를 만나고](https://www.youtube.com/watch?v=WhIRtX3sejo)  |   [온 땅의 주인](https://www.youtube.com/watch?si=YXf4CO__DLi0UIMq&v=oyCnA2e7rfU&feature=youtu.be) / [Who Am I](https://www.youtube.com/watch?v=3rT8Re1EIQc)  |
+| 7/28     | 성령의 불타는 교회 |   하나님의 세계  |
