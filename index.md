@@ -20,4 +20,4 @@
 | 7/7      | [Because of You](https://www.youtube.com/watch?v=_aGend8Lhqs) / [Because of You](https://www.youtube.com/watch?v=lNPFFoZ_OTs) |   [You are special](https://www.youtube.com/watch?v=xuD6pJE3AYM)  |
 | 7/14     | [나의 슬픔을](https://www.youtube.com/watch?v=mRMGcV02Lr4) / [Mourning into dancing](https://www.youtube.com/watch?v=8xl7uaY2sB0) |   [남겨진 사람들](https://www.youtube.com/watch?v=8pXJqCerqYI)  |
 | 7/21     | [우린 주를 만나고](https://www.youtube.com/watch?v=WhIRtX3sejo)  |   [온 땅의 주인](https://www.youtube.com/watch?si=YXf4CO__DLi0UIMq&v=oyCnA2e7rfU&feature=youtu.be) / [Who Am I](https://www.youtube.com/watch?v=3rT8Re1EIQc)  |
-| 7/28     | 성령의 불타는 교회 |   하나님의 세계  |
+| 7/28     | [성령의 불타는 교회](https://www.youtube.com/watch?v=kgTBGxIa-BU) / [Church on Fire](https://www.youtube.com/watch?v=JvxZmyRdVwg) | [하나님의 세계](https://www.youtube.com/watch?v=nUTvfKu7q3c) |
