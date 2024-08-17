@@ -23,3 +23,4 @@
 | 7/28     | [성령의 불타는 교회](https://www.youtube.com/watch?v=kgTBGxIa-BU) / [Church on Fire](https://www.youtube.com/watch?v=JvxZmyRdVwg) | [하나님의 세계](https://www.youtube.com/watch?v=nUTvfKu7q3c) |
 | 8/4     | [나의 슬픔을](https://www.youtube.com/watch?v=mRMGcV02Lr4) / [Mourning into dancing](https://www.youtube.com/watch?v=8xl7uaY2sB0) | [남겨진 사람들](https://www.youtube.com/watch?v=8pXJqCerqYI) |
 | 8/11     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  |  -  |
+| 8/18     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [기대](https://www.youtube.com/watch?v=uOUpjKfqQOY) |
