@@ -24,3 +24,4 @@
 | 8/4     | [나의 슬픔을](https://www.youtube.com/watch?v=mRMGcV02Lr4) / [Mourning into dancing](https://www.youtube.com/watch?v=8xl7uaY2sB0) | [남겨진 사람들](https://www.youtube.com/watch?v=8pXJqCerqYI) |
 | 8/11     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  |  -  |
 | 8/18     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [기대](https://www.youtube.com/watch?v=uOUpjKfqQOY) |
+| 8/25     | [내게 강 같은 평화](https://www.youtube.com/watch?v=kh87d5UPggE) |  -  |
