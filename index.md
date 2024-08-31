@@ -25,3 +25,4 @@
 | 8/11     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  |  -  |
 | 8/18     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [기대](https://www.youtube.com/watch?v=uOUpjKfqQOY) |
 | 8/25     | [내게 강 같은 평화](https://www.youtube.com/watch?v=kh87d5UPggE) |  -  |
+| 9/1     | [나의 하나님](https://www.youtube.com/watch?v=evFTNQOrL3w) |  [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g)  |
