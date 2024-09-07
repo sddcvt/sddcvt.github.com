@@ -26,3 +26,5 @@
 | 8/18     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [기대](https://www.youtube.com/watch?v=uOUpjKfqQOY) |
 | 8/25     | [내게 강 같은 평화](https://www.youtube.com/watch?v=kh87d5UPggE) |  -  |
 | 9/1     | [나의 하나님](https://www.youtube.com/watch?v=evFTNQOrL3w) |  [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g)  |
+| 9/8     | [우리 주 안에서 노래하며](https://youtu.be/AC0ZECQEVXI?si=Opkm7i_SzpQx6WjU) / [That's What We Came Here For](https://www.youtube.com/watch?v=FKPIbawK_Co) |  [공급자]([https://www.youtube.com/watch?v=Fi2waeWY18g](https://youtu.be/Y1owMuZr9_Q?si=kDZ3KGLx8zO5Pz1x))  |
+
