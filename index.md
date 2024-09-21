@@ -27,4 +27,7 @@
 | 8/25     | [내게 강 같은 평화](https://www.youtube.com/watch?v=kh87d5UPggE) |  -  |
 | 9/1     | [나의 하나님](https://www.youtube.com/watch?v=evFTNQOrL3w) |  [주를 찾는 모든 자들이](https://www.youtube.com/watch?v=Fi2waeWY18g)  |
 | 9/8     | [우리 주 안에서 노래하며](https://youtu.be/AC0ZECQEVXI?si=Opkm7i_SzpQx6WjU) / [That's What We Came Here For](https://www.youtube.com/watch?v=FKPIbawK_Co) |  [공급자](https://www.youtube.com/watch?v=Y1owMuZr9_Q) |
+| 9/15     |   -  |  -  |
+| 9/8     | [주의 음성을 내가 들으니](https://www.youtube.com/watch?v=1J4Vum7WuRs) |  [시선](https://www.youtube.com/watch?v=ri_2Mqo1y0U) |
+
 
