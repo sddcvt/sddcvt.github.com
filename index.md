@@ -29,6 +29,7 @@
 | 9/8     | [우리 주 안에서 노래하며](https://youtu.be/AC0ZECQEVXI?si=Opkm7i_SzpQx6WjU) / [That's What We Came Here For](https://www.youtube.com/watch?v=FKPIbawK_Co) |  [공급자](https://www.youtube.com/watch?v=Y1owMuZr9_Q) |
 | 9/15     |   -  |  -  |
 | 9/22    | [주의 음성을 내가 들으니](https://www.youtube.com/watch?v=1J4Vum7WuRs) |  [시선](https://www.youtube.com/watch?v=ri_2Mqo1y0U) |
-| 8/29     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [아무것도 두려워 말라](https://www.youtube.com/watch?v=jTDVBR_pRCI) |
+| 9/29     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [아무것도 두려워 말라](https://www.youtube.com/watch?v=jTDVBR_pRCI) |
+| 10/6     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  | [순종이 제사보다 낫습니다](https://www.youtube.com/watch?v=IEFlUYyn5Ps) |
 
 
