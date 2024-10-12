@@ -31,5 +31,5 @@
 | 9/22    | [주의 음성을 내가 들으니](https://www.youtube.com/watch?v=1J4Vum7WuRs) |  [시선](https://www.youtube.com/watch?v=ri_2Mqo1y0U) |
 | 9/29     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [아무것도 두려워 말라](https://www.youtube.com/watch?v=jTDVBR_pRCI) |
 | 10/6     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  | [순종이 제사보다 낫습니다](https://www.youtube.com/watch?v=IEFlUYyn5Ps) |
-
+| 10/13    | [내가 매일 기쁘게](https://www.youtube.com/watch?v=E4Um3NSZDMI)  |   [부르신 곳에서](https://www.youtube.com/watch?v=5Su-FPh0MlA)  |
 
