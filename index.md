@@ -32,4 +32,5 @@
 | 9/29     | [무화과 나뭇잎이 마르고](https://www.youtube.com/watch?v=-emuSXvMQH8)  | [아무것도 두려워 말라](https://www.youtube.com/watch?v=jTDVBR_pRCI) |
 | 10/6     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  | [순종이 제사보다 낫습니다](https://www.youtube.com/watch?v=IEFlUYyn5Ps) |
 | 10/13    | [내가 매일 기쁘게](https://www.youtube.com/watch?v=E4Um3NSZDMI)  |   [부르신 곳에서](https://www.youtube.com/watch?v=5Su-FPh0MlA)  |
+| 10/20    | [나는 주만 높이리](https://www.youtube.com/watch?v=RFNK_DbTCMU) /  [Only a God like You](https://www.youtube.com/watch?v=rmbr4SrwRjA)  |   [세상의 유혹 시험이](https://www.youtube.com/watch?v=PwPXxH7JIv0)  |
 
