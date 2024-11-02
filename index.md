@@ -33,4 +33,8 @@
 | 10/6     | [시편 139편](https://www.youtube.com/watch?v=LoPVum0CFAY)  | [순종이 제사보다 낫습니다](https://www.youtube.com/watch?v=IEFlUYyn5Ps) |
 | 10/13    | [내가 매일 기쁘게](https://www.youtube.com/watch?v=E4Um3NSZDMI)  |   [부르신 곳에서](https://www.youtube.com/watch?v=5Su-FPh0MlA)  |
 | 10/20    | [나는 주만 높이리](https://www.youtube.com/watch?v=RFNK_DbTCMU) /  [Only a God like You](https://www.youtube.com/watch?v=rmbr4SrwRjA)  |   [세상의 유혹 시험이](https://www.youtube.com/watch?v=PwPXxH7JIv0)  |
+| 10/27    | [아름다운 나라](https://www.youtube.com/watch?v=ycJgvKV22Ho) |   [주님의 시간에](https://www.youtube.com/watch?v=gdQfX3YZwPg) / [In His Time](https://www.youtube.com/watch?v=aJeNUlNY7Iw)  |
+| 11/3    | [주님 약속 하신 말씀 위에서](https://www.youtube.com/watch?v=WHaApl44ZzQ) |   [나 이제 돌아가](https://www.youtube.com/watch?v=JJ2X_Dxy5IY)  |
+
+
 
