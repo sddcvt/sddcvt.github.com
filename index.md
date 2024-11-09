@@ -35,6 +35,7 @@
 | 10/20    | [나는 주만 높이리](https://www.youtube.com/watch?v=RFNK_DbTCMU) /  [Only a God like You](https://www.youtube.com/watch?v=rmbr4SrwRjA)  |   [세상의 유혹 시험이](https://www.youtube.com/watch?v=PwPXxH7JIv0)  |
 | 10/27    | [아름다운 나라](https://www.youtube.com/watch?v=ycJgvKV22Ho) |   [주님의 시간에](https://www.youtube.com/watch?v=gdQfX3YZwPg) / [In His Time](https://www.youtube.com/watch?v=aJeNUlNY7Iw)  |
 | 11/3    | [주님 약속 하신 말씀 위에서](https://www.youtube.com/watch?v=WHaApl44ZzQ) |   [나 이제 돌아가](https://www.youtube.com/watch?v=JJ2X_Dxy5IY)  |
+| 11/10    | [아름다운 나라](https://www.youtube.com/watch?v=ycJgvKV22Ho) |  [온 땅의 주인](https://www.youtube.com/watch?si=YXf4CO__DLi0UIMq&v=oyCnA2e7rfU&feature=youtu.be) / [Who Am I](https://www.youtube.com/watch?v=3rT8Re1EIQc)   |
 
 
 
