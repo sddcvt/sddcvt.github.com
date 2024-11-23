@@ -38,4 +38,5 @@
 | 11/10    | [아름다운 나라](https://www.youtube.com/watch?v=ycJgvKV22Ho) |  [온 땅의 주인](https://www.youtube.com/watch?si=YXf4CO__DLi0UIMq&v=oyCnA2e7rfU&feature=youtu.be) / [Who Am I](https://www.youtube.com/watch?v=3rT8Re1EIQc)   |
 | 11/17    | [왕 되신 주께 감사하세](https://www.youtube.com/watch?v=eytwu1Lvphc) |  [Forever](https://www.youtube.com/watch?v=-2J9P9W97-U) / [어둔 날 다 지나고](https://www.youtube.com/watch?v=EqDL2-OW1Z4)   |
 
+| 11/24    |  [나는 주만 높이리](https://www.youtube.com/watch?v=RFNK_DbTCMU) /  [Only a God like You](https://www.youtube.com/watch?v=rmbr4SrwRjA) | [주의 손에 나의 손을 포개고](https://www.youtube.com/watch?v=A018qr6KlgM) |
 
