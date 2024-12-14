@@ -39,5 +39,5 @@
 | 11/17    | [왕 되신 주께 감사하세](https://www.youtube.com/watch?v=eytwu1Lvphc) |  [Forever](https://www.youtube.com/watch?v=-2J9P9W97-U) / [어둔 날 다 지나고](https://www.youtube.com/watch?v=EqDL2-OW1Z4)   |
 | 11/24    | [나는 주만 높이리](https://www.youtube.com/watch?v=RFNK_DbTCMU) /  [Only a God like You](https://www.youtube.com/watch?v=rmbr4SrwRjA) |  [주의 손에 나의 손을 포개고](https://www.youtube.com/watch?v=A018qr6KlgM)  |
 | 12/1    | [내가 늘 의지하는 예수](https://www.youtube.com/watch?v=Lh3VLft12lE) |  [주님 마음 내게 주소서](https://www.youtube.com/watch?v=S1y_J6XRUiY) / Coração Igual ao Teu 🇧🇷 [1](https://www.youtube.com/watch?v=4AOcImUAOfk), [2](https://www.youtube.com/watch?v=YKOU5lqwxHc)  |
-
-
+| 12/8    | [천사들의 노래가](https://www.youtube.com/watch?v=8ph5phvESuI) |  [주가 보이신 생명의 길](https://www.youtube.com/watch?v=DHcgMytOvbE)  |
+| 12/15    | [천사 찬송하기를](https://www.youtube.com/watch?v=6Al9FHKLsus) |  [예수 아름다우신](https://www.youtube.com/watch?v=jX-ZfU5LWhI)  |
