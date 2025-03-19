@@ -16,5 +16,6 @@
 | 3/9    | [성령이여 임하소서 + 불을 내려주소서](https://www.youtube.com/watch?v=trh3btQmcVk) | |
 | 3/16   | [만세반석 + 믿음따라](https://youtube.com/watch?v=DCXaZRrOS8Y&si=JmzO3tPMilqZJfMw) | |
 | 3/23   | [시편 139편](https://youtu.be/mgS_ng-wAqY?si=TqBF36ojbVkBbxKU) |  [나의 가는 길](https://youtu.be/-QOw3eOCWsI?si=6DXgwmD_-91tHQDZ) / [God will make a way](https://www.youtube.com/watch?v=_rSWXf2Y4z0)  |
+| 3/30   | [하나님의 나라](https://youtu.be/xtBnkPYqBr0?si=_ZDA4HCZUo9_i6Wi) | [하나님의 세계](https://youtu.be/nUTvfKu7q3c?si=5caRzDstTeJIUQvN) |
 
 * [2024년도 찬양 모음](2024worship.md)
