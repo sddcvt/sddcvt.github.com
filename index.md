@@ -17,5 +17,6 @@
 | 3/16   | [만세반석 + 믿음따라](https://youtube.com/watch?v=DCXaZRrOS8Y&si=JmzO3tPMilqZJfMw) | |
 | 3/23   | [시편 139편](https://youtu.be/mgS_ng-wAqY?si=TqBF36ojbVkBbxKU) |  [나의 가는 길](https://youtu.be/-QOw3eOCWsI?si=6DXgwmD_-91tHQDZ) / [God will make a way](https://www.youtube.com/watch?v=_rSWXf2Y4z0)  |
 | 3/30   | [하나님의 나라](https://youtu.be/xtBnkPYqBr0?si=_ZDA4HCZUo9_i6Wi) | [하나님의 세계](https://youtu.be/nUTvfKu7q3c?si=5caRzDstTeJIUQvN) |
+| 4/6    | [아 하나님의 은혜로](https://youtu.be/uVXpHV_QqrE?si=5_SBAn4pk7JIujYf) / [I know whom I have belived](https://www.youtube.com/watch?v=rb1M9ggHzOA) | [내가 주인 삼은](https://youtu.be/BI4tCaxsLu4?si=6en33jA7oVUQ7n8q) |
 
 * [2024년도 찬양 모음](2024worship.md)
