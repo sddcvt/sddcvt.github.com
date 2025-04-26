@@ -19,5 +19,7 @@
 | 3/30   | [하나님의 나라](https://youtu.be/xtBnkPYqBr0?si=_ZDA4HCZUo9_i6Wi) | [하나님의 세계](https://youtu.be/nUTvfKu7q3c?si=5caRzDstTeJIUQvN) |
 | 4/6    | [아 하나님의 은혜로](https://youtu.be/uVXpHV_QqrE?si=5_SBAn4pk7JIujYf) / [I know whom I have belived](https://www.youtube.com/watch?v=rb1M9ggHzOA) | [내가 주인 삼은](https://youtu.be/BI4tCaxsLu4?si=6en33jA7oVUQ7n8q) |
 | 4/13   | [안개 속에](https://youtu.be/phsM067B9KY?si=hJcagW-UXJW0zMNr) | [갈보리 산 위에](https://youtu.be/O8MFNDGtdsY?si=4n_Y8gQa-bTkAEfB) |
+| 4/20   | [예수 살아계신 주 + 무덤 이기신 예수](https://youtu.be/TH4xfC3Ft4A?si=-y6tKqSA3o-UeVyW) | [유월절 어린양의 피로](https://youtu.be/stSwhNk6E3I?si=ty4zikjYOxQ-05pv) |
+| 4/27   | [하나님의 나라](https://youtu.be/xtBnkPYqBr0?si=_ZDA4HCZUo9_i6Wi) | [은혜로다](https://youtube.com/watch?v=MqnCa4yw8os&si=BXhHS1In-q3pcaH-) |
 
 * [2024년도 찬양 모음](2024worship.md)
