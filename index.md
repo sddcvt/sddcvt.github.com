@@ -21,5 +21,11 @@
 | 4/13   | [안개 속에](https://youtu.be/phsM067B9KY?si=hJcagW-UXJW0zMNr) | [갈보리 산 위에](https://youtu.be/O8MFNDGtdsY?si=4n_Y8gQa-bTkAEfB) |
 | 4/20   | [예수 살아계신 주 + 무덤 이기신 예수](https://youtu.be/TH4xfC3Ft4A?si=-y6tKqSA3o-UeVyW) | [유월절 어린양의 피로](https://youtu.be/stSwhNk6E3I?si=ty4zikjYOxQ-05pv) |
 | 4/27   | [하나님의 나라](https://youtu.be/xtBnkPYqBr0?si=_ZDA4HCZUo9_i6Wi) | [은혜로다](https://youtube.com/watch?v=MqnCa4yw8os&si=BXhHS1In-q3pcaH-) |
+| 5/4    |  -  |  -  |
+| 5/11   | [하나님의 나라](https://youtu.be/xtBnkPYqBr0?si=_ZDA4HCZUo9_i6Wi) | [은혜로다](https://youtube.com/watch?v=MqnCa4yw8os&si=BXhHS1In-q3pcaH-) |
+| 5/18   |  [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA)  |  [왕이신 나의 하나님](https://youtu.be/q38P5eZz3QI?si=PzajP9qVTAKL9Y1V) |
+| 5/25   |  -  |  -  |
+| 6/1    | [안개 속에](https://youtu.be/phsM067B9KY?si=hJcagW-UXJW0zMNr) | - |
+| 6/8    | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | [생수의 강](https://youtu.be/GXUium-Njww?si=5XS75EBMifvP-5fo) |
 
 * [2024년도 찬양 모음](2024worship.md)
