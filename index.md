@@ -27,5 +27,8 @@
 | 5/25   |  -  |  -  |
 | 6/1    | [안개 속에](https://youtu.be/phsM067B9KY?si=hJcagW-UXJW0zMNr) | - |
 | 6/8    | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | [생수의 강](https://youtu.be/GXUium-Njww?si=5XS75EBMifvP-5fo) |
+| 6/15   | [사랑의 계절은](https://youtu.be/2wR4g_C1KsA?si=kdVOecK2xBkE-he2) | [깊어진 삶을 주께](https://youtu.be/2f1YGctBalo?si=rlX_M1ceQQDIxzAy) |
+| 6/22   |  -  |  -  |
+| 6/29   |  [빛으로 비추시네](https://youtu.be/4KDP6E2Kezo)  |  [시선](https://youtu.be/xI920TT1fRY) |
 
 * [2024년도 찬양 모음](2024worship.md)
