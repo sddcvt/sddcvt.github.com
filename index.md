@@ -31,5 +31,6 @@
 | 6/22   |  -  |  -  |
 | 6/29   | [빛으로 비추시네](https://youtu.be/4KDP6E2Kezo)  | [시선](https://youtu.be/xI920TT1fRY) |
 | 7/6    | [사친다노](https://m.youtube.com/watch?v=V4qIiT5tWis&pp=ygUW7IKs7Lmc64uk64W4IO2UvOyVhOuFuA%3D%3D) | - |
+| 7/13   | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | - |
 
 * [2024년도 찬양 모음](2024worship.md)
