@@ -32,8 +32,9 @@
 | 6/29   | [빛으로 비추시네](https://youtu.be/4KDP6E2Kezo)  | [시선](https://youtu.be/xI920TT1fRY) |
 | 7/6    | [사친다노](https://m.youtube.com/watch?v=V4qIiT5tWis&pp=ygUW7IKs7Lmc64uk64W4IO2UvOyVhOuFuA%3D%3D) | - |
 | 7/13   | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | - |
-| 6/20   |  [날아올라](https://youtu.be/T351AG19D4c) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug) |
+| 7/20   |  [날아올라](https://youtu.be/T351AG19D4c) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug) |
 | 7/27   | [마귀들과 싸울지라](https://youtu.be/c0WVuloAaX8) | [다시 한 번](https://youtu.be/iPNs1m7XIQ0) |
-
+| 8/3    | [마귀들과 싸울지라](https://youtu.be/c0WVuloAaX8) | [다시 한 번](https://youtu.be/iPNs1m7XIQ0) |
+| 8/10   | [만세반석](https://youtu.be/voxye9mvxg8?si=CLk4rT1XN3PgTrmn) | [우리가 주를 더욱 사랑하고](https://youtu.be/aZKVBRA_hAg?si=fNEq0OUmMwkp4otf) |
 
 * [2024년도 찬양 모음](2024worship.md)
