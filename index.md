@@ -36,5 +36,8 @@
 | 7/27   | [마귀들과 싸울지라](https://youtu.be/c0WVuloAaX8) | [다시 한 번](https://youtu.be/iPNs1m7XIQ0) |
 | 8/3    | [마귀들과 싸울지라](https://youtu.be/c0WVuloAaX8) | [다시 한 번](https://youtu.be/iPNs1m7XIQ0) |
 | 8/10   | [만세반석](https://youtu.be/voxye9mvxg8?si=CLk4rT1XN3PgTrmn) | [우리가 주를 더욱 사랑하고](https://youtu.be/aZKVBRA_hAg?si=fNEq0OUmMwkp4otf) |
+| 8/17   | [하나님의 사랑이](https://youtu.be/fV69rb_MO3o) | [온 세상 창조주(Winning All)](https://youtu.be/9tv_O_-L2yY) |
+| 8/24   | [하나님의 사랑이](https://youtu.be/fV69rb_MO3o) | [당신은 사랑받기 위해 태어난 사람](https://youtu.be/v7QWV8sv66M?si=tRT6mFYhd0JA477Q) |
+| 8/31   | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | [나는 아무것도 아닙니다](https://youtu.be/yfWzBI1pjgg) |
 
 * [2024년도 찬양 모음](2024worship.md)
