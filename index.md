@@ -39,5 +39,7 @@
 | 8/17   | [하나님의 사랑이](https://youtu.be/fV69rb_MO3o) | [온 세상 창조주(Winning All)](https://youtu.be/9tv_O_-L2yY) |
 | 8/24   | [하나님의 사랑이](https://youtu.be/fV69rb_MO3o) | [당신은 사랑받기 위해 태어난 사람](https://youtu.be/v7QWV8sv66M?si=tRT6mFYhd0JA477Q) |
 | 8/31   | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | [나는 아무것도 아닙니다](https://youtu.be/yfWzBI1pjgg) |
+| 9/7    | [우리가 주를 더욱 사랑하고](https://youtu.be/aZKVBRA_hAg) | [순종이 제사보다 낫습니다](https://youtu.be/IEFlUYyn5Ps?si=4h-WeBnyEk4TUEqj) |
+| 9/14   | [생수의 강이 + 주님의 강이](https://youtu.be/GXUium-Njww?si=VqvRyCjfNFvLg3Ds) | [순종이 제사보다 낫습니다](https://youtu.be/IEFlUYyn5Ps?si=4h-WeBnyEk4TUEqj) |
 
 * [2024년도 찬양 모음](2024worship.md)
