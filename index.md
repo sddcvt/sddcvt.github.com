@@ -41,5 +41,6 @@
 | 8/31   | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=Gbc3Cm2r8U0I3RCA) | [나는 아무것도 아닙니다](https://youtu.be/yfWzBI1pjgg) |
 | 9/7    | [우리가 주를 더욱 사랑하고](https://youtu.be/aZKVBRA_hAg) | [순종이 제사보다 낫습니다](https://youtu.be/IEFlUYyn5Ps?si=4h-WeBnyEk4TUEqj) |
 | 9/14   | [생수의 강이 + 주님의 강이](https://youtu.be/GXUium-Njww?si=VqvRyCjfNFvLg3Ds) | [순종이 제사보다 낫습니다](https://youtu.be/IEFlUYyn5Ps?si=4h-WeBnyEk4TUEqj) |
+| 9/21   | [RE:IGNITE](https://youtu.be/9V6Aj5QhZbA?si=J4Ci01luwE6Y-hFY) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=95qVAbdELX2yioQN) |
 
 * [2024년도 찬양 모음](2024worship.md)
