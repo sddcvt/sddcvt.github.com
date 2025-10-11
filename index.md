@@ -43,5 +43,7 @@
 | 9/14   | [생수의 강이 + 주님의 강이](https://youtu.be/GXUium-Njww?si=VqvRyCjfNFvLg3Ds) | [순종이 제사보다 낫습니다](https://youtu.be/IEFlUYyn5Ps?si=4h-WeBnyEk4TUEqj) |
 | 9/21   | [RE:IGNITE](https://youtu.be/9V6Aj5QhZbA?si=J4Ci01luwE6Y-hFY) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=95qVAbdELX2yioQN) |
 | 9/28   | [빛의 사자들이여](https://youtu.be/1ddGvj1mWns?si=iS8ZdV_EZ0sXGWYo) | [왕이신 나의 하나님](https://youtu.be/V3dm-KnjyXo?si=bW8tZA72RULS-eus) |
+| 10/5   | - | - |
+| 10/12  | [RE:IGNITE](https://youtu.be/9V6Aj5QhZbA?si=J4Ci01luwE6Y-hFY) | - |
 
 * [2024년도 찬양 모음](2024worship.md)
