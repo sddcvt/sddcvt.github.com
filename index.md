@@ -45,5 +45,6 @@
 | 9/28   | [빛의 사자들이여](https://youtu.be/1ddGvj1mWns?si=iS8ZdV_EZ0sXGWYo) | [왕이신 나의 하나님](https://youtu.be/V3dm-KnjyXo?si=bW8tZA72RULS-eus) |
 | 10/5   | - | - |
 | 10/12  | [RE:IGNITE](https://youtu.be/9V6Aj5QhZbA?si=J4Ci01luwE6Y-hFY) | - |
+| 10/19  | [온 세상 창조주(Winning All)](https://youtu.be/9tv_O_-L2yY) | [허망해 보이나](https://youtu.be/0a7jk9GhG4E) |
 
 * [2024년도 찬양 모음](2024worship.md)
