@@ -46,5 +46,6 @@
 | 10/5   | - | - |
 | 10/12  | [RE:IGNITE](https://youtu.be/9V6Aj5QhZbA?si=J4Ci01luwE6Y-hFY) | - |
 | 10/19  | [온 세상 창조주(Winning All)](https://youtu.be/9tv_O_-L2yY) | [허망해 보이나](https://youtu.be/0a7jk9GhG4E) |
+| 10/26  | [말씀 앞에서](https://www.youtube.com/watch?v=8szyv1G9h9w) | [나는 주를 섬기는 것에 후회가 없습니다](https://blog.naver.com/relishsky/223305128314) |
 
 * [2024년도 찬양 모음](2024worship.md)
