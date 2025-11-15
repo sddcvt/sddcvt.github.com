@@ -49,5 +49,7 @@
 | 10/26  | [말씀 앞에서](https://www.youtube.com/watch?v=8szyv1G9h9w) | [나는 주를 섬기는 것에 후회가 없습니다](https://blog.naver.com/relishsky/223305128314) |
 | 11/02  | [부흥 있으리라](https://youtu.be/y6hW8EiZySc?si=CPzF60K85031UL7u) | [나의 안에 거하라](https://youtu.be/oIgpHu4B6bk?si=g-mmkgAUm6NiK_uF) |
 | 11/09  | [마귀들과 싸울지라](https://youtu.be/c0WVuloAaX8) | [우리는 주의 움직이는 교회](https://youtu.be/R9z0ISZJSig?si=VNo_7nsvzTfxYUbs) |
+| 11/15  | [주를 찾는 모든 자들이](https://youtu.be/Fi2waeWY18g?si=geAOQWjxwEM5gMoo) | - |
+
 
 * [2024년도 찬양 모음](2024worship.md)
