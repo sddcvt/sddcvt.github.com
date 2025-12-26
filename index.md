@@ -51,5 +51,10 @@
 | 11/09  | [마귀들과 싸울지라](https://youtu.be/c0WVuloAaX8) | [우리는 주의 움직이는 교회](https://youtu.be/R9z0ISZJSig?si=VNo_7nsvzTfxYUbs) |
 | 11/15  | [주를 찾는 모든 자들이](https://youtu.be/Fi2waeWY18g?si=geAOQWjxwEM5gMoo) | - |
 | 11/23  | [부흥 있으리라](https://youtu.be/y6hW8EiZySc?si=CPzF60K85031UL7u) | [남겨진 사람들](https://youtu.be/8pXJqCerqYI?si=xdne_E1bdygcqMu0) |
+| 11/30  | - | - |
+| 12/7   | [기쁘다 구주 오셨네 & 참 반가운 신도여](https://youtu.be/zcZEny-rKOk?si=gdR8LpjREkmHQF6P) | - |
+| 12/14  | - | - |
+| 12/21  | [기쁘다 구주 오셨네 & 참 반가운 신도여](https://youtu.be/zcZEny-rKOk?si=gdR8LpjREkmHQF6P) | - |
+| 12/28  | [우리는 주의 움직이는 교회 & 모인자리 우리 하나되네](https://youtu.be/OWb3XQH5aS4?si=4wPsxJcQRBtf6iMC) | - |
 
 * [2024년도 찬양 모음](2024worship.md)
