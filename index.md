@@ -10,6 +10,8 @@
 | 1/25  | [빛으로 비추시네](https://youtu.be/4KDP6E2Kezo?si=Dqe0viWWMHI-SjDO) | [Miracle generation](https://youtu.be/F-_72XOOUGg?si=wDHUNLjwFIh9tHCQ) [Live](https://www.youtube.com/watch?v=C_dw4Xp475s&t=180s) |
 | 2/1   | [빛으로 비추시네](https://youtu.be/4KDP6E2Kezo?si=Dqe0viWWMHI-SjDO) | [빈 무덤](https://www.youtube.com/watch?v=9U2id8TTbwE) |
 | 2/8   | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=ZKSH8-GtXd3KMyaX) | [성령의 불타는 교회 + 부흥 있으리라](https://www.youtube.com/watch?v=y6hW8EiZySc&list=RDy6hW8EiZySc&start_radio=1) |
+| 2/15 | - | - |
+| 2/22 | [빛으로 비추시네](https://www.youtube.com/watch?v=4KDP6E2Kezo&list=RD4KDP6E2Kezo) | [남겨진 사람들](https://www.youtube.com/watch?v=8pXJqCerqYI&list=RD8pXJqCerqYI) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
