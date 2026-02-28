@@ -12,6 +12,7 @@
 | 2/8   | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=ZKSH8-GtXd3KMyaX) | [성령의 불타는 교회 + 부흥 있으리라](https://www.youtube.com/watch?v=y6hW8EiZySc&list=RDy6hW8EiZySc&start_radio=1) |
 | 2/15 | - | - |
 | 2/22 | [빛으로 비추시네](https://www.youtube.com/watch?v=4KDP6E2Kezo&list=RD4KDP6E2Kezo) | [남겨진 사람들](https://www.youtube.com/watch?v=8pXJqCerqYI&list=RD8pXJqCerqYI) |
+| 3/1  | [주님의 사랑](https://youtu.be/7X6_5hYxrZA?si=ZXYiorO4LDNT4C74) |  [남겨진 사람들](https://youtu.be/8pXJqCerqYI?si=dRr2WCdwz0hJPUzs) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
