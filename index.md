@@ -16,6 +16,8 @@
 | 3/8  | [사친다노](https://www.youtube.com/watch?v=V4qIiT5tWis) | [주님의 사랑](https://youtu.be/7X6_5hYxrZA?si=ZXYiorO4LDNT4C74) |
 | 3/15 | [주님의 사랑](https://www.youtube.com/watch?v=7X6_5hYxrZA) | [야베스의 기도](https://www.youtube.com/watch?v=DpvkO7_iTh0) |
 | 3/22 | [Nothing is Impossible](https://www.youtube.com/watch?v=bkedxWbD9ck) | [야베스의 기도](https://www.youtube.com/watch?v=DpvkO7_iTh0) |
+| 3/29 | [Nothing is Impossible](https://www.youtube.com/watch?v=bkedxWbD9ck) | [나의 꿈 내 소망](https://www.youtube.com/watch?v=Z_VLc5StL1s) |
+| 4/5  | [예수 열방의 소망](https://www.youtube.com/watch?v=QOI-kywg2yA) | [나의 꿈 내 소망](https://www.youtube.com/watch?v=Z_VLc5StL1s) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
