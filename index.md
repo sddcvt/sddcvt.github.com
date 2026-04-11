@@ -18,6 +18,7 @@
 | 3/22 | [Nothing is Impossible](https://www.youtube.com/watch?v=bkedxWbD9ck) | [야베스의 기도](https://www.youtube.com/watch?v=DpvkO7_iTh0) |
 | 3/29 | [Nothing is Impossible](https://www.youtube.com/watch?v=bkedxWbD9ck) | [나의 꿈 내 소망](https://www.youtube.com/watch?v=Z_VLc5StL1s) |
 | 4/5  | [예수 열방의 소망](https://www.youtube.com/watch?v=QOI-kywg2yA) | [나의 꿈 내 소망](https://www.youtube.com/watch?v=Z_VLc5StL1s) |
+| 4/12 | [예수 열방의 소망](https://www.youtube.com/watch?v=QOI-kywg2yA) | [주와 함께 걸어가네](https://www.youtube.com/watch?v=ApHcXxQPSC4) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
