@@ -21,6 +21,10 @@
 | 4/12 | [예수 열방의 소망](https://www.youtube.com/watch?v=QOI-kywg2yA) | [주와 함께 걸어가네](https://www.youtube.com/watch?v=ApHcXxQPSC4) |
 | 4/19 | [Nothing is Impossible](https://www.youtube.com/watch?v=bkedxWbD9ck) | [주와 함께 걸어가네](https://www.youtube.com/watch?v=ApHcXxQPSC4) |
 | 4/26 | [Nothing is Impossible](https://www.youtube.com/watch?v=bkedxWbD9ck) | [순종이 제사보다 낫습니다](https://m.youtube.com/watch?v=IEFlUYyn5Ps) |
+| 5/3  |  패밀리데이  |  -  |
+| 5/10 |  단합대회  |  -  |
+| 5/17 | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=ZKSH8-GtXd3KMyaX) | [다시 한 번](https://youtu.be/q8l0l2Rqoaw?si=ar1CxtHMWpLnWQqw) |
+
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
