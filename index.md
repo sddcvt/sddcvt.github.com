@@ -24,7 +24,7 @@
 | 5/3  |  패밀리데이  |  -  |
 | 5/10 |  단합대회  |  -  |
 | 5/17 | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=ZKSH8-GtXd3KMyaX) | [다시 한 번](https://youtu.be/q8l0l2Rqoaw?si=ar1CxtHMWpLnWQqw) |
-| 5/24 | [내 몸은 구주의 성전이니](https://www.youtube.com/watch?v=eJGuXTbpoH4) | [광야를 지나며](https://www.youtube.com/watch?v=1UBsTYjh91Y) |
+| 5/24 | [내 몸은 구주의 성전이니](https://www.youtube.com/watch?v=eJGuXTbpoH4) | [광야를 지나며](https://www.youtube.com/watch?v=1UBsTYjh91Y) [(신의악단)](https://youtu.be/pAFCWbReGNI?si=drvK4h0XKKm0-nO_) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
