@@ -27,6 +27,8 @@
 | 5/24 | [내 몸은 구주의 성전이니](https://www.youtube.com/watch?v=eJGuXTbpoH4) | [광야를 지나며](https://www.youtube.com/watch?v=1UBsTYjh91Y) [(신의악단)](https://youtu.be/pAFCWbReGNI?si=drvK4h0XKKm0-nO_) |
 | 5/31 | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=ZKSH8-GtXd3KMyaX) | [광야를 지나며](https://www.youtube.com/watch?v=1UBsTYjh91Y) [(신의악단)](https://youtu.be/pAFCWbReGNI?si=drvK4h0XKKm0-nO_) |
 | 6/7  | [호산나](https://youtu.be/bSCLyRk-cEM?si=_FlCt0agLM0oj1yv) [Paul Baloche](https://www.youtube.com/watch?v=_6t53HBih1I) | [갈보리 산 위에](https://youtu.be/EA_5SiBPbEQ?si=DnbPHbq8TxCcnKXZ) |
+| 6/14  | [호산나](https://youtu.be/bSCLyRk-cEM?si=_FlCt0agLM0oj1yv) [Paul Baloche](https://www.youtube.com/watch?v=_6t53HBih1I) | [빛의 사자들이여](https://www.youtube.com/watch?v=8EX3xQ5JbKQ&list=RD8EX3xQ5JbKQ) |
+
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
