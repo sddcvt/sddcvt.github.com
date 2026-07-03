@@ -29,7 +29,7 @@
 | 6/7  | [호산나](https://youtu.be/bSCLyRk-cEM?si=_FlCt0agLM0oj1yv) [Paul Baloche](https://www.youtube.com/watch?v=_6t53HBih1I) | [갈보리 산 위에](https://youtu.be/EA_5SiBPbEQ?si=DnbPHbq8TxCcnKXZ) |
 | 6/14  | [호산나](https://youtu.be/bSCLyRk-cEM?si=_FlCt0agLM0oj1yv) [Paul Baloche](https://www.youtube.com/watch?v=_6t53HBih1I) | [빛의 사자들이여](https://www.youtube.com/watch?v=8EX3xQ5JbKQ&list=RD8EX3xQ5JbKQ) |
 | 6/21  | - | - |
-| 6/28  | [세상의 유혹 시험이 + 보라 하나님 구원을](https://www.youtube.com/watch?v=73hxBdryo1o) | - |
+| 6/28  | 🧑🏻‍🏫 [세상의 유혹 시험이 + 보라 하나님 구원을](https://www.youtube.com/watch?v=73hxBdryo1o) | - |
 | 7/5   | [Don’t worry](https://youtu.be/uFeopKdYMTQ) | [주님의 강가에서](https://youtu.be/1-dbdymFYYA) |
 
 * [2025년도 찬양 모음](2025worship.md)
