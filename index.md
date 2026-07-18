@@ -31,6 +31,9 @@
 | 6/21  | - | - |
 | 6/28 🧑🏻‍🏫 | [세상의 유혹 시험이 + 보라 하나님 구원을](https://www.youtube.com/watch?v=73hxBdryo1o) | - |
 | 7/5   | [Don’t worry](https://youtu.be/uFeopKdYMTQ) | [주님의 강가에서](https://youtu.be/1-dbdymFYYA) |
+| 7/12  | [Don’t worry](https://www.youtube.com/playlist?list=PLisVOLftXaRbKy4QjDI_nwtMoUS0O_Z5H) | [오셔서 다스리소서](https://www.youtube.com/watch?v=86f0Yx_dgjM&list=PLisVOLftXaRbKy4QjDI_nwtMoUS0O_Z5H&index=19) |
+| 7/19  | [날아올라](https://youtu.be/H6b2xZO8EgY?si=rV8rTZziXkEl2XSX) | [주기도문](https://youtu.be/Ohyi6WsdbVQ?si=CIfiia7Xr6unr7Gu) |
+
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
