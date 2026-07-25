@@ -33,7 +33,7 @@
 | 7/5   | [Don’t worry](https://youtu.be/uFeopKdYMTQ) | [주님의 강가에서](https://youtu.be/1-dbdymFYYA) |
 | 7/12  | [Don’t worry](https://www.youtube.com/playlist?list=PLisVOLftXaRbKy4QjDI_nwtMoUS0O_Z5H) | [오셔서 다스리소서](https://www.youtube.com/watch?v=86f0Yx_dgjM&list=PLisVOLftXaRbKy4QjDI_nwtMoUS0O_Z5H&index=19) |
 | 7/19  | [날아올라](https://youtu.be/H6b2xZO8EgY?si=rV8rTZziXkEl2XSX) | [주기도문](https://youtu.be/Ohyi6WsdbVQ?si=CIfiia7Xr6unr7Gu) |
-
+| 7/26  | [만세반석](https://youtu.be/voxye9mvxg8?si=l14TF0jN7AJnH-Qh) |  [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=YsLTvy3CRS0saRJu) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
