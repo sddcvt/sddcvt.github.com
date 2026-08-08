@@ -35,6 +35,7 @@
 | 7/19  | [날아올라](https://youtu.be/H6b2xZO8EgY?si=rV8rTZziXkEl2XSX) | [주기도문](https://youtu.be/Ohyi6WsdbVQ?si=CIfiia7Xr6unr7Gu) |
 | 7/26  | [만세반석](https://youtu.be/voxye9mvxg8?si=l14TF0jN7AJnH-Qh) |  [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=YsLTvy3CRS0saRJu) |
 | 8/2   | [마귀들과 싸울지라](https://youtu.be/WulVe0sJZmI?si=6kDqXMbDJTCh-VLs) |  [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=YsLTvy3CRS0saRJu) |
+| 8/9   | [주를 바라보며](https://youtu.be/f-GNJSX3VPQ?si=xJ8Es_UzF2tqAbjn) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=WiUo2M8RnMn5FEKW) | 
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
