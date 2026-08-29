@@ -38,6 +38,7 @@
 | 8/9   | [주를 바라보며](https://youtu.be/f-GNJSX3VPQ?si=xJ8Es_UzF2tqAbjn) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=WiUo2M8RnMn5FEKW) | 
 | 8/16  | - | - |
 | 8/23  | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=7Fdu_J7LRPgiPm8T) | [주를 바라보며](https://youtu.be/f-GNJSX3VPQ?si=xJ8Es_UzF2tqAbjn) |
+| 8/30  | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
