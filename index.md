@@ -40,6 +40,7 @@
 | 8/23  | [불을 내려주소서](https://youtu.be/DO1LCn6mRXE?si=7Fdu_J7LRPgiPm8T) | [주를 바라보며](https://youtu.be/f-GNJSX3VPQ?si=xJ8Es_UzF2tqAbjn) |
 | 8/30  | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
 | 9/6   | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
+| 9/13  | [Nothing is impossible](https://youtu.be/bkedxWbD9ck?si=HZflHUyEex7Q-HsN) | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
