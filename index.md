@@ -41,6 +41,8 @@
 | 8/30  | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
 | 9/6   | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
 | 9/13  | [Nothing is impossible](https://youtu.be/bkedxWbD9ck?si=HZflHUyEex7Q-HsN) | [성문 밖으로](https://www.youtube.com/watch?v=MAG_1H01888) |
+| 9/20  | [예수 열방의 소망](https://youtu.be/QOI-kywg2yA?si=Ed9QPVtSydnRXRc1) | [남겨진 사람들](https://youtu.be/8pXJqCerqYI?si=uXT0-iLH9BTmPtmM) |
+
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
