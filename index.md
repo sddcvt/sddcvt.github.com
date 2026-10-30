@@ -47,6 +47,8 @@
 | 10/11 | [주와 함께 걸어가네](https://youtu.be/ApHcXxQPSC4?si=MbYA8e53ZtaOZTAY) | [광야를 지나며](https://youtu.be/1UBsTYjh91Y?si=GPaOKvvNEq_zAmCX) |
 | 10/18 | - | - |
 | 10/25 | [돌아서지 않으리](https://www.youtube.com/watch?v=5Ea_89RMyIo) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
+| 11/1  | [돌아서지 않으리](https://www.youtube.com/watch?v=5Ea_89RMyIo) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=nKrNg0d5HsMti2m3) |
+
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
