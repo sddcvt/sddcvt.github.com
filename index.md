@@ -2,8 +2,8 @@
 
 #### 2026년도 주차별 찬양 모음
 
-| Dates | 1st Song | 2nd Song | 
-| :-------------: | ------------- | ------------- |
+| Dates | 1st Song | 2nd Song | 3rd Song |
+| :-------------: | ------------- | ------------- | ------------- |
 | 1/4   | [부흥 있으리라](https://youtu.be/y6hW8EiZySc?si=bPTuAHT9ixnmGE6e) |  [주와 함께 걸어가네](https://www.youtube.com/watch?v=4xgfqgd7ioo)  |
 | 1/11  | [우린 물러서지 않으리](https://youtu.be/mPjM5u1fGAA?si=LE6TS-VUvMuAgbk3) |  [나의 안에 거하라](https://youtu.be/oIgpHu4B6bk?si=G-SQ_yRFmMOFXm93) |
 | 1/18  | [우리가 주를 더욱 사랑하고](https://youtu.be/aZKVBRA_hAg?si=TBlUBhG-sBGNxmUl) |  [나의 안에 거하라](https://youtu.be/oIgpHu4B6bk?si=5hldbjfTkFWgrqM1) |
@@ -48,7 +48,7 @@
 | 10/18 | - | - |
 | 10/25 | [돌아서지 않으리](https://www.youtube.com/watch?v=5Ea_89RMyIo) | [돌아가는 길](https://www.youtube.com/watch?v=FzsbhbBN4Yk) |
 | 11/1  | [돌아서지 않으리](https://www.youtube.com/watch?v=5Ea_89RMyIo) | [그리스도의 계절](https://youtu.be/8Dqq3tXN6ug?si=nKrNg0d5HsMti2m3) |
-
+| 11/8  | [좋으신 하나님 앞에](https://youtu.be/nPBFflGC2hc?si=ZvtjD8ZQrvCRXdU0) | [만세반석](https://youtu.be/voxye9mvxg8?si=vXVLs6IqQPyNNVnq) | [주 오셔서 구하시리](https://youtu.be/Nb04BeFxN_I?si=Uhzk127pEzN4PPrA) |
 
 * [2025년도 찬양 모음](2025worship.md)
 * [2024년도 찬양 모음](2024worship.md)
